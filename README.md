@@ -43,7 +43,7 @@ I focus on building software that is **simple to understand, easy to maintain, s
 
 📫 **Let's connect**
 
-[LinkedIn](YOUR_LINKEDIN_URL)
+[LinkedIn](https://www.linkedin.com/in/brgermano/)
 
 
 
